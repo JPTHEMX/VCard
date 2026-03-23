@@ -1,1 +1,1 @@
-Hi [Nombre del nuevo manager], my current manager, Ovi, suggested I reach out to you. Unfortunately, my iOS role was impacted by the position eliminations announced today, and I am actively looking for a new internal opportunity. Ovi mentioned your team is based in Plano. Do you happen to have any open iOS developer positions on your team right now? I would love to chat briefly if you have a few minutes.
+I really appreciate you looking into it. Let's definitely sync up tomorrow, just let me know what time works best for you.
