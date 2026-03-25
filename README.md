@@ -1,1 +1,1 @@
-I really appreciate you looking into it. Let's definitely sync up tomorrow, just let me know what time works best for you.
+Hi Ovi, not yet. Neal sent an email to his managers (Luis and Carlos) to see if there are any open roles. He mentioned they might reply between today and tomorrow, so I am still waiting for an update. I will keep you posted as soon as I hear back from them
